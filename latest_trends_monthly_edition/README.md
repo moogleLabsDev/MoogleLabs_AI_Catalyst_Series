@@ -4,5 +4,5 @@ https://admincerebruminfotech-my.sharepoint.com/:p:/g/personal/vashistanush_moog
 **Latest trends October, 24 PPT link:**
 https://admincerebruminfotech-my.sharepoint.com/:p:/g/personal/vashistanush_mooglelabs_com/ERTa7Exs3uhHrzfsc7U-68cBozdOn7fxt_ZaP61N334d-Q?e=b3MGgu
 
-**Latest trends October, 24 PPT link:**
+**Latest trends November, 24 PPT link:**
 https://admincerebruminfotech-my.sharepoint.com/:p:/g/personal/vashistanush_mooglelabs_com/Ed1ry5eJANFElO3FMixgu-cBFiicXWWVf-ZGMQWeMaz5Sg?e=uWnWPz
